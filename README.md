@@ -5,5 +5,4 @@
 Kacper Zych
 Maciej Wasiuta
 
-
-CZEŚĆ KACPER
+AKTUALIZACJA!!!!
